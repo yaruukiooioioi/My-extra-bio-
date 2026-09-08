@@ -1,5 +1,3 @@
-## my extra bio
-![image](https/02d8d66c8a23ed897a4c3bc1125113761746f476)
 
 hello! my name's yaruko! you can use all pronouns you prefer! I'm non-binary!
 here I will say some of the things I like!
