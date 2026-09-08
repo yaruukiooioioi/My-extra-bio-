@@ -6,6 +6,8 @@ please don't think I'm a waxwell yumeshipper, I'm a fictionkin.
 don't ship me with anyone I don't like or don't know, I feel uncomfortable.
 I love helping people with their problems, so if u have a problem and want help with it, I will help u no matter what!
 
+PLEASE NEVER, I MEAN NEVER COPY MY SKINS, only with permission
+
 
 I talk: Spanish, Italian, english, Portuguese/Brazil, Russian, German and Gucci Morty
 Gucci Morty is the best language ever bcs it's Gucci Gucci Morty Gucci Morty Gucci Gucci Morty 
