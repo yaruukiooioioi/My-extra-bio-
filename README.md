@@ -1,9 +1,5 @@
 
-!image storage/emulated/0/Download/
-
-abb192aca3141ebf18a702dd35cda79
-
-5.jpg
+!image storage/emulated/0/Download/abb192aca3141ebf18a702dd35cda795.jpg
 
 
 
