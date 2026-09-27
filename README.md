@@ -1,5 +1,6 @@
-<img 417bd8a5ba84df2681d4b971ce1a8d73.jpg>
-
+<img ...417bd8a5ba84df2681d4b971ce1a8d73.jpg>
+<p align="center">
+<div align="center">
 
 hello! my name's yaruko! you can use all pronouns you prefer! I'm non-binary!
 here I will say some of the things I like!
