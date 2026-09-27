@@ -1,6 +1,5 @@
-<p align="center">
-  <img src="./images/foto.jpg" alt="417bd8a5ba84df2681d4b971ce1a8d73.jpg" width="300" />
-</p>
+
+<img src="images/417bd8a5ba84df2681d4b971ce1a8d73.jpg.jpg" alt="description">
 
 hello! my name's yaruko! you can use all pronouns you prefer! I'm non-binary!
 here I will say some of the things I like!
